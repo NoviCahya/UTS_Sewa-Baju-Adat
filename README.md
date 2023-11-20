@@ -1,1 +1,0 @@
-# UTS_Sewa-Baju-Adat
